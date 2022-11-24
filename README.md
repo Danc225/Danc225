@@ -1,4 +1,4 @@
-<h1>Hola!! Yo soy @Danc225 ✌😁👋<h1/>
+Hola!! Yo soy @Danc225 ✌😁👋
 
 
 Soy de Uruguay,estudiante de Launch X,
